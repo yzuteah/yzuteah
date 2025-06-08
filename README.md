@@ -1,3 +1,3 @@
 #Halo! Saya Nabila Syarifah
-Saya merupakan pelajar SMAN 1 PORONG SIDOARJO
-Hubungi saya di : zahronabila@gmail.com
+I'm Student Web Designer and Prograamer.
+Hubungi saya di : zahronabila@gmail.coma
